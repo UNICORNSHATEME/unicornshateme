@@ -19,6 +19,6 @@ No matter what you do, ❤︎ [You're special.](https://spacehey.com/raffiieeeee
 <div align="center"><img src="https://dl.glitter-graphics.com/pub/670/670844x9319fmd27.jpg"></div><br>
 <div align="center">
 
-[my friend](https://github.com/hoursofcooleststuff4evr) ❤︎ [my rentry 4 kul stuffz :33](https://rentry.co/RECOMMENDEDITEMS2GRABBLOLL)
+[my friend](https://github.com/hoursofcooleststuff4evr) ❤︎ [my rentry 4 kul stuffz :33](https://rentry.co/RECOMMENDEDITEMS2GRABBLOLL) ❤︎ [OMGOMG MYSPACE AAAAA](https://spacehey.com/raffiieeeeeee)
 </div>
 <div align="center"><img src="https://dl.glitter-graphics.com/pub/692/692879g5azuimrkv.gif"></div>
